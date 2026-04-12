@@ -1,1 +1,0 @@
-# nkamitaki.github.io
